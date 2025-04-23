@@ -45,9 +45,9 @@
 
 ## Output
 
+![Screenshot (74)](https://github.com/user-attachments/assets/ad74a9ba-dd39-4849-9670-09f5641f4544)
 
-
-
+![WhatsApp Image 2025-04-22 at 3 50 07 PM](https://github.com/user-attachments/assets/4acc49bb-4ca8-4888-a4fd-325def41b4de)
 
 
 
